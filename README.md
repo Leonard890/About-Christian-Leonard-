@@ -18,6 +18,8 @@ Throughout my life, I study to one day become an Engineer. I want to expand my k
 ## Family
 My family is very important to me. My parents both graduated in universities in [Haiti](https://finca.org/where-we-work/latin-america/haiti/?gclid=Cj0KCQjw0IDtBRC6ARIsAIA5gWsjQD2I_knbDOg0QBFjmfIawjsrjt-6EobZVT149Pvt6dbkSzHw0nYaAj-uEALw_wcB), then went to college again, in the U.S.A. They both had great jobs in Haiti where my mother was the Chief Accountant who worked for the Government. My mother got a bachelor's degree in Business Admissions/Accountant. My dad's job was as a physics teacher. My father got a master's degree in Physics. They moved because they wanted to have children. Throughout my life, I had a wonderful time because my parents were there. In my family, I have a mother, father, brother, and grandmother. My brother and I lived in Brockton for most of our lives. 
 
+My younger brother, age 14, is thinking of becoming a [Programmer](https://www.thebalancecareers.com/computer-programmer-job-description-salary-and-skills-2061823). As of right now, my father works as a co-teacher in [South Middle School](https://www.bpsma.org/schools/middle-schools/south) and my mother works as a [Respiratory Therapist](http://www.aarc.org/careers/how-to-become-an-rt/). They both tried so hard to help us with our goals. Sometimes, my dad helps me with my homework in [Physics](https://www.khanacademy.org/science/physics).
+
 ## Culture
 In Haiti, my parents would wear different types of clothes that represented their culture. As of right now, my parents would wear regular clothes from stores in America. However, my mother and grandmother would still cook the same food they did in Haiti. For example, they would make [Haitian Style: Beef Patties](https://www.allrecipes.com/recipe/255839/haitian-beef-patties/), [Haitian Accra](https://www.caribbeangreenliving.com/how-to-make-haitian-accra-an-updated-version/), [Haitian Bouillon Soup](https://www.caribbeangreenliving.com/bouillon-beef-and-veggies-soup-2/), etc.  They didn't want to forget their own home. The reason why my parents moved here was that America provides opportunities for my brother and I. They were also afraid that we would not be born. Many people from Haitian went to America to get a better lifestyle as well.
 
@@ -26,8 +28,6 @@ In Haiti, my parents would wear different types of clothes that represented thei
 ## Music
 For Music, they listened to Haitian music, but I didn't understand what the lyrics were. Usually, at a party, they would dance around if they couldn't dance anymore. My mom said that Haitian music was also part of their culture because they wouldn't be the people they are today. Many people from Haiti listen to music from America because they want to try something new. It also applies to cultures. My brother doesn't really understand the music. Only my parents and my grandmother understands them. 
 
-
-My younger brother, age 14, is thinking of becoming a [Programmer](https://www.thebalancecareers.com/computer-programmer-job-description-salary-and-skills-2061823). As of right now, my father works as a co-teacher in [South Middle School](https://www.bpsma.org/schools/middle-schools/south) and my mother works as a [Respiratory Therapist](http://www.aarc.org/careers/how-to-become-an-rt/). They both tried so hard to help us with our goals. Sometimes, my dad helps me with my homework in [Physics](https://www.khanacademy.org/science/physics). 
 
 ## Skills
 
