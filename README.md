@@ -1,4 +1,4 @@
-# About Christian Leonard
+# About Christian Leonard: The Birth of the Legend!
 
  - **Name:** Christian Leonard 
  - **School:** Brockton High School 
