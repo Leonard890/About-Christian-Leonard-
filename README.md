@@ -26,7 +26,7 @@ In Haiti, my parents would wear different types of clothes that represented thei
 
 
 ## Music
-For Music, they listened to Haitian music, but I didn't understand what the lyrics were. Usually, at a party, they would keep dance around until they couldn't dance anymore. My mom said that Haitian music was also part of their culture because they wouldn't be the people they are today. Many people from Haiti listen to music from America because they want to try something new. It also applies to cultures. My brother doesn't really understand the music. Only my parents and my grandmother understands them. 
+For Music, they've listened to Haitian music, but I didn't understand what the lyrics were. Usually, at a party, they would keep dance around until they couldn't dance anymore. My mom said that Haitian music was also part of their culture because they wouldn't be the people they are today. Many people from Haiti listen to music from America because they want to try something new. It also applies to cultures. My brother doesn't really understand the music. Only my parents and my grandmother understands them. 
 
 
 ## Skills
